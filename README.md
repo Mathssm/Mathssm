@@ -1,6 +1,7 @@
 ## Não achou nada é?!
 ### Infelizmente não me senti pronto para colocar nada aqui, mas espero que em breve :P
 
+PS: Se você for de alguma vaga de estágio que eu me candidatei, me dá uma chance vai!! Prometo que não vai se arrepender hahah
 <!--
 **Mathssm/Mathssm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
